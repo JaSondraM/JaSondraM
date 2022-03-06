@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JaSondraM
 - 👀 I’m interested in nails
-- 🌱 I’m currently learning how tp be a cosmetoligist
+- 🌱 I’m currently learning how to be a cosmetoligist
 - 💞️ I’m looking to collaborate on grade
 - 📫 How to reach me email
 
